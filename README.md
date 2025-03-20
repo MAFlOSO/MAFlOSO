@@ -7,4 +7,4 @@
 
 
 
-[𝖬𝖺𝗂𝗇](https://github.com/SlRLANCELOT) ✦ [𝖠𝗍𝖺𝖻𝗈𝗈𝗄]() ✦ [𝖳𝗎𝗆𝖻𝗅𝗋]()
+[𝖬𝖺𝗂𝗇](https://github.com/SlRLANCELOT) ✦ [𝖠𝗍𝖺𝖻𝗈𝗈𝗄](https://keithgane.atabook.org/) ✦ [𝖳𝗎𝗆𝖻𝗅𝗋](https://www.tumblr.com/redkogaane?source=share)
