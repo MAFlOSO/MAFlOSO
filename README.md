@@ -7,4 +7,4 @@
 
 <sub>c+h are always free.
 
-[𝖬𝖺𝗂𝗇](https://github.com/7n7eIIiot) ✦ [𝖠𝗍𝖺𝖻𝗈𝗈𝗄](https://keithgane.atabook.org/) ✦ [𝖳𝗎𝗆𝖻𝗅𝗋](https://www.tumblr.com/redkogaane?source=share)
+[𝖬𝖺𝗂𝗇](https://github.com/mafiasocool) ✦ [𝖠𝗍𝖺𝖻𝗈𝗈𝗄](https://keithgane.atabook.org/) ✦ [𝖳𝗎𝗆𝖻𝗅𝗋](https://www.tumblr.com/redkogaane?source=share)
