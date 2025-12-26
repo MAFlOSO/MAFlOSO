@@ -7,4 +7,4 @@
 
 <sub>c+h are always free.
 
-[O1](https://github.com/blackholepilled) ✦ [O2](https://keithgane.atabook.org/) ✦ [O3](https://rentry.co/astriobiology) ✦ [𝖳𝗋𝖾𝖾](https://colormytree.me/2025/01JFQ3KB30TT82QADRPG5WKZK5)
+[O1](https://github.com/blackholepilled) ✦ [O2](https://keithgane.atabook.org/) ✦ [O3](https://blackholepilled.straw.page/)
