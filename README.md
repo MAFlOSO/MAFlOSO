@@ -2,9 +2,10 @@
 
 
 
-![tumblr_dd29ccb6f9b44325ec80cf16523c20c2_bd988b2c_400](https://github.com/user-attachments/assets/c1c8a9f4-fb8d-404f-a444-cc5ead016334)
+![Screenshot_20260101_191749](https://github.com/user-attachments/assets/151ed90b-69f6-44a1-9352-e8a6c20bd612)
 
 
-<sub>c+h are always free.
+
+<sub>links
 
 [O1](https://github.com/blackholepilled) ✦ [O2](https://keithgane.atabook.org/) ✦ [O3](https://blackholepilled.straw.page/)
